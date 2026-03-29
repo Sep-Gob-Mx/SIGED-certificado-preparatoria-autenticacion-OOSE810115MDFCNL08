@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-OOSE810115MDFCNL08
+OOSE810115MDFCNL08
